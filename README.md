@@ -8,6 +8,7 @@ If the answer to any of these questions is no, you're probably not working in a
 group.
 
 -   Are you asking and answering questions?
+-   Are you listening to the answers?
 -   Are you talking to other people?
 -   Are you looking at other people?
 
