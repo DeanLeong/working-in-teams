@@ -66,7 +66,7 @@ that women often are overlooked in mixed-gender groups. Luckily, you don't have
 to be a part of this problem. Here are some ways that you can support the women
 in your group.
 
--   Don't interrupt them when they are talking
+-   Don't interrupt them (or any of your groupmates) when they are talking
 -   Publicly acknowledge the work that they do
 -   Give them credit for their ideas
 -   If they haven't spoken in a while, ask them if they have anything to add
