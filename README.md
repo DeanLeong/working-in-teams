@@ -1,4 +1,4 @@
-# Working in Groups
+# Working in Teams
 
 A tutorial on how to work in groups in the (tech) workplace
 
